@@ -1,4 +1,4 @@
-# 
+# Enhance WinRAR for PC | WinRAR for Windows with WinRAR for PC | WinRAR for Windows vip Plugin: solid-archives & cloud-integration, the #1 plugin. Includes solid-archives and
 
 
 
